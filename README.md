@@ -1,0 +1,1 @@
+# Merge-2048-Infinite-Privacy-Policy
